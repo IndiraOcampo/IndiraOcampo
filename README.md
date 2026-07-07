@@ -1,4 +1,4 @@
-## Hi there, I'm Indira
+## Hi there, I'm Indira 🌌
 * La Caixa fellow and PhD candidate at Instituto de Física Teórica.
 * Member of the Euclid collaboration.
 
